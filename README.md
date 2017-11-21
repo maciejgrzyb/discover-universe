@@ -1,1 +1,1 @@
-# futurysta
+# discover-universe
